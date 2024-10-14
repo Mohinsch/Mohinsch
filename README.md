@@ -5,7 +5,7 @@
 - 🚑 I am a first aider, I like to treat little injuries 🤕 <br>
 - 🛫 I have the chance and the pleasure to work with Aura Aero for the design and manufacture of 100% electric aircraft, crazy right? <br>
 - 📫 How to reach me: schirinzi.mohini@gmail.com <br>
-- Other way ➡  < a href="www.linkedin.com/in/mohini-schirinzi" > linkedin < /a >
+- Other way ➡  <a href="www.linkedin.com/in/mohini-schirinzi" > linkedin </a >
 - 😄 Pronouns: Mohins 🙈 <br>
 - ⚡ Fun fact: I have an Italian 🇮🇹 accent when I speak English 😂🫠
 
